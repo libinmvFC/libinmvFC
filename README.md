@@ -1,0 +1,2 @@
+- 👋 Hi, I’m @libinmvFC
+- 👀 I’m a Data Analyst Intern @ FullContact Inc.
